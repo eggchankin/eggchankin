@@ -3,6 +3,6 @@
 
 
 
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/925e9f07-15f3-4f2f-86e0-b041ba11f7b7" />         hi call me andrew/soda/aubree/nash
+<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/925e9f07-15f3-4f2f-86e0-b041ba11f7b7" />         hi call me andrew/soda/aubree/nash
                                                                                                                                                 im mostly offtab  or  drawing
                                                                                                                                               w2i friends int pls!!! :3
