@@ -9,7 +9,7 @@ i wont bite if ud like to int but if i with ma friends ill answer late srry im s
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/e6540de7-ab68-4886-856e-a4467ee0510f" />
 
 
-
+<img width="1094" height="881" alt="image" src="https://github.com/user-attachments/assets/5693019b-6aab-4893-b9ac-68e5e6deab68" />
 
 
   <br>
