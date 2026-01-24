@@ -1,6 +1,6 @@
 NOT AN IVANDREW SHIPPER I LIKE THE TROPE AND HEALTHY AU
-<img width="1200" height="480" alt="image" src="https://github.com/user-attachments/assets/23235671-508a-4435-9fd9-68c5ca2100ff" />
-<img width="1289" height="12" alt="image" src="https://github.com/user-attachments/assets/a702d669-e2db-41eb-ac90-04786afa7e89" />
+<img width="2048" height="1848" alt="Без названия972_20260125000513" src="https://github.com/user-attachments/assets/e390435b-cd79-44a8-b3b9-bb4b51bb65e0" />
+
 
 i wont bite if ud like to int but if i with ma friends ill answer late srry im speaking eng and russian i like eng more yuhhh u should prolly check my strawpage  
   <br>　　　　　　　　 <img alt="Static Badge" src="https://img.shields.io/badge/P3T-LULZ%D0%98-Z?style=plastic&logo=googlegemini&logoColor=fff6fb&logoSize=auto&color=003f74&cacheSeconds=3600&link=https%3A%2F%2Fgithub.com%2FDemonCathedral"> <br/> 
