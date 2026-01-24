@@ -15,12 +15,12 @@ i wont bite if ud like to int but if i with ma friends ill answer late srry im s
 
 
   <br>
-<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/925e9f07-15f3-4f2f-86e0-b041ba11f7b7" />   
+
                                          hi call me andrew/soda/aubree/nash
                                                                                                        im mostly offtab  or  drawing
                                      w2i, friends int pls!!! :3
                   
-<img width="600" height="42" alt="image" src="https://github.com/user-attachments/assets/6877a1de-6eb9-4b14-9ea2-74ca29f5bde1" /><img width="300" height="42" alt="image" src="https://github.com/user-attachments/assets/e3349126-1131-4c65-bff5-6b11831fc4f5" />
 
 
-<img width="1500" height="51" alt="image" src="https://github.com/user-attachments/assets/5119dcc1-fe65-41e5-ba86-9eb418b3e248" />
+
+
