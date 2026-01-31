@@ -1,10 +1,4 @@
 
-<p align="center">
-
-  ![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+colore35676+Code&pause=10&color=e35676&width=1000&lines=+i+dont+ship+ivandew+i+like+the+trope+and+healthy+au)
-  <p align="center">
-<img width="2048" height="1848" alt="Без названия972_20260125000513" src="https://github.com/user-attachments/assets/e390435b-cd79-44a8-b3b9-bb4b51bb65e0" />
-
 
 i wont bite if ud like to int but if i with ma friends ill answer late srry im speaking eng and russian i like eng more yuhhh u should prolly check my strawpage  
 
