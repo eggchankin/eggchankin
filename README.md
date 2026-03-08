@@ -23,3 +23,4 @@ i wont bite if ud like to int but if i with ma friends ill answer late srry im s
 <img width="1600" height="80" alt="image" src="https://github.com/user-attachments/assets/32703e61-2d60-49ca-bd5b-04ff20a462ba" />
 
 
+![ab44c77c2e7a58b769ed22c17edf705f](https://github.com/user-attachments/assets/83c99feb-f378-4718-bcf6-9635863aa8a1)
