@@ -1,6 +1,8 @@
+![tumblr_7ebfec602cba6217713c53cef9b7f7ad_4cb58f85_540](https://github.com/user-attachments/assets/be0fa4ce-2cdd-4d49-9512-98e7a638a3c8)
 
-
-i wont bite if ud like to int but if i with ma friends ill answer late srry im speaking eng and russian i like eng more yuhhh u should prolly check my strawpage  
+i wont bite if ud like to int but if i with ma friends ill answer late srry 
+im speaking eng and russian i like eng more yuhhh 
+u should prolly check my strawpage  
 
 
 
@@ -12,6 +14,9 @@ i wont bite if ud like to int but if i with ma friends ill answer late srry im s
 
 
 
+![tumblr_7ebfec602cba6217713c53cef9b7f7ad_4cb58f85_540](https://github.com/user-attachments/assets/0b9ed676-105b-4b7d-bf75-087faa71dc02)
+
+
 ![michaamazing2-micha-tanner](https://github.com/user-attachments/assets/2522189f-23cd-4934-9ab3-31515eb461c1)
 
 
@@ -20,7 +25,7 @@ i wont bite if ud like to int but if i with ma friends ill answer late srry im s
 
 
 
-<img width="1600" height="80" alt="image" src="https://github.com/user-attachments/assets/32703e61-2d60-49ca-bd5b-04ff20a462ba" />
+
 
 
 ![ab44c77c2e7a58b769ed22c17edf705f](https://github.com/user-attachments/assets/83c99feb-f378-4718-bcf6-9635863aa8a1)
