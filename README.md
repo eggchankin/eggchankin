@@ -1,8 +1,9 @@
 ![tumblr_7ebfec602cba6217713c53cef9b7f7ad_4cb58f85_540](https://github.com/user-attachments/assets/be0fa4ce-2cdd-4d49-9512-98e7a638a3c8)
 
-i wont bite if ud like to int but if i with ma friends ill answer late srry 
+${{\color{#cd6ffc}{\textsf{ 　⠀　i wont bite if ud like to int but if i with ma friends ill answer late srry 
 im speaking eng and russian i like eng more yuhhh 
-u should prolly check my strawpage  
+u should prolly check my strawpage    　  ͜ 
+}}}}$  
 
 
 
