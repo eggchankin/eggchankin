@@ -1,9 +1,8 @@
+<h5 align="center">
+  
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Hachi+Maru+Pop&pause=1000&color=be74e3&width=435&lines=hi+call+me+eggchan+or+micha+lulz+!!*%22)](https://git.io/typing-svg)<p align="center">
 
-${{\color{#cd6ffc}{\textsf{ 　⠀　i wont bite if ud like to int but if i with ma friends ill answer late srry 
-im speaking eng and russian i like eng more yuhhh     　  ͜ 
-}}}}$  
-
-
+<p align="center">
 
              hi call me micha/msak/andrew/soda/aubree/nash
               im mostly offtab  or  drawing
