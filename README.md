@@ -18,7 +18,7 @@ $\text{\color{#b1a9fc} c+h friendly}$\
 $\text{\color{#a9bafc} offtab most of the time}$\
 $\text{\color{#d2dafa} dont be racist pls...}$
 
-
+[please be nice its rlly not that hard]([https://rentry.co/sevns_storage](https://youtu.be/928M2-hvvxc?si=SWuIbstsrKFsNRYW))
 
   <img width="736" height="432" alt="image" src="https://github.com/user-attachments/assets/ab5e878c-2d58-4bcb-a65e-6d0eb7f6b2be" />
 <img width="500" height="500" alt="tumblr_f02dd95afaea423c53d3431d444465df_e901266d_500 (1)" src="https://github.com/user-attachments/assets/b093c071-6d16-4622-b49f-d889fb291e18" />
