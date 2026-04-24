@@ -22,3 +22,6 @@ $\text{\color{#d2dafa} dont be racist pls...}$
 
   <img width="736" height="432" alt="image" src="https://github.com/user-attachments/assets/ab5e878c-2d58-4bcb-a65e-6d0eb7f6b2be" />
 <img width="500" height="500" alt="tumblr_f02dd95afaea423c53d3431d444465df_e901266d_500 (1)" src="https://github.com/user-attachments/assets/b093c071-6d16-4622-b49f-d889fb291e18" />
+
+
+dni: proshippers, callie, basic dni
