@@ -23,6 +23,26 @@ $\text{\color{#97a1a0} dont be racist pls...}$
 ](https://www.youtube.com/watch?v=928M2-hvvxc&list=RD928M2-hvvxc&start_radio=1 )
 
 <img width="600" height="42" alt="tumblr_54cff6185a14a79dda41220c51031a20_fb021f14_640 (2)" src="https://github.com/user-attachments/assets/28d6ee8f-81f1-471c-879b-69169244f6f8" />
+
+ </a>
+</p>
+ <div align="center">
+ <details> <summary> $${\color{#a9d6d3} :3 \space sum \space info \space !!}$$ </summary>
+
+   $\text{\color{#a9d6d3} ive been longly stalked, grromed or abused online so int with caution,,, im listening to devi mccallion and stomach book mostly! }$
+   
 <img width="200" height="50" alt="image" src="https://github.com/user-attachments/assets/06c7386f-4523-4620-9c19-9fdd8546c439" />
 
-dni: proshippers, callie, basic dni
+$\text{\color{#a9d6d3} dni: basic dni, xenophobies, callie, proship ppl }$
+
+
+ </p>
+</p>
+<p align="left" dir="auto">‎ ‎ ‎ </p>
+<p align="left" dir="auto">‎ ‎ ‎ </p>
+</details>
+
+<p align="center"> 
+
+<img width="600" height="42" alt="tumblr_54cff6185a14a79dda41220c51031a20_fb021f14_640 (2)" src="https://github.com/user-attachments/assets/28d6ee8f-81f1-471c-879b-69169244f6f8" />
+
