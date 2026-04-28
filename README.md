@@ -29,7 +29,8 @@ $\text{\color{#97a1a0} dont be racist pls...}$
  <div align="center">
  <details> <summary> $${\color{#a9d6d3} :3 \space sum \space info \space !!}$$ </summary>
 
-   $\text{\color{#a9d6d3} ive been longly stalked, grromed or abused online so int with caution,,, im listening to devi mccallion and stomach book mostly! u can see me pet regressing sometimes... thats how i cope! }$
+   $\text{\color{#a9d6d3} ive been longly stalked, grromed or abused online so int with caution,,, im listening to devi mccallion and stomach book mostly! }$
+    $\text{\color{#a9d6d3} u can see me pet regress sometimes, well, thats how i cope!}$
    
 <img width="200" height="50" alt="image" src="https://github.com/user-attachments/assets/06c7386f-4523-4620-9c19-9fdd8546c439" />
 
