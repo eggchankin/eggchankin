@@ -1,3 +1,4 @@
+hi so im also have a party safe place for agere or pet regre. whisper if u want to join
 <div align="center">   <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/2e324a2e-7cde-48aa-a2c2-fd28efb7afbf" />
 
 
