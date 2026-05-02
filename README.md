@@ -47,3 +47,7 @@ $\text{\color{#a9d6d3} dni: basic dni, xenophobies, callie, proship ppl }$
 
 <img width="600" height="42" alt="tumblr_54cff6185a14a79dda41220c51031a20_fb021f14_640 (2)" src="https://github.com/user-attachments/assets/28d6ee8f-81f1-471c-879b-69169244f6f8" />
 
+
+
+
+<img width="1008" height="926" alt="image" src="https://github.com/user-attachments/assets/bf896b77-cd05-4a33-8341-d854daf6b233" />
