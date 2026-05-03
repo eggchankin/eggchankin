@@ -17,6 +17,8 @@ $\text{\color{#deba59} dont be racist pls...}$
 
 [my bf](https://github.com/sebastianlikesapples)
 <img width="400" height="300" alt="tumblr_311767560270bad9b5bd2f8655d2c91f_7101cf7a_1280" src="https://github.com/user-attachments/assets/372e3f00-9ee8-4301-84c9-718470ec0f9b" />
+<img width="650" height="478" alt="tumblr_9027050408f19647d377cbcc3b638b9a_301aa63f_1280" src="https://github.com/user-attachments/assets/a4670cd0-37ca-42cb-af66-7dc29557a28d" />
+<img width="1000" height="1006" alt="tumblr_e6b4f4662fe8f6cd00640d1787b02b04_190b68e1_1280" src="https://github.com/user-attachments/assets/5523b747-cd7e-4926-8816-afcdb47d7260" />
 
 
 
