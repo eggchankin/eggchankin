@@ -1,3 +1,28 @@
+<img width="2048" height="819" alt="tumblr_5d0722baacd410137074a8808c5c7359_394ec23b_2048" src="https://github.com/user-attachments/assets/4a8ceada-49ae-426d-9c11-7e70e50287b2" />
+
+<div align="center"> <img width="99" height="56" alt="tumblr_900ad3868659e4c381eb6146a9fb850a_2a9e7ac1_100" src="https://github.com/user-attachments/assets/9d50c650-0691-4318-9490-459ff37c745e" />
+
+<img width="300" height="300" alt="tumblr_cf83ef503abf0a7b70a8729f0c823e21_e65ff305_2048" src="https://github.com/user-attachments/assets/5a286b13-537d-4823-a567-999e9b411697" />
+
+
+
+$\text{\color{#deba59} aubree/soda/pepper/apricat or squirm}$\
+$\text{\color{#deba59} 22 september russian}$\
+$\text{\color{#deba59} demiaroace abrosexual non-binary they/xe}$\
+$\text{\color{#deba59} i love my partner hehe }$
+
+$\text{\color{#deba59} c+h friendly}$\
+$\text{\color{#deba59} offtab most of the time}$\
+$\text{\color{#deba59} dont be racist pls...}$
+
+[my bf](https://github.com/sebastianlikesapples)
+<img width="400" height="300" alt="tumblr_311767560270bad9b5bd2f8655d2c91f_7101cf7a_1280" src="https://github.com/user-attachments/assets/372e3f00-9ee8-4301-84c9-718470ec0f9b" />
+
+
+
+
+
+
 hi so im also have a party safe place for agere or pet regre. whisper if u want to join
 <div align="center">   <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/2e324a2e-7cde-48aa-a2c2-fd28efb7afbf" />
 
