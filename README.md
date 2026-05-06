@@ -1,4 +1,25 @@
 <div align="center"> TY FOR 200 FOLLOWERS !!!
+<div align="center"> 
+  
+
+<img width="300" height="300" alt="tumblr_f732eb5a9032557c159e8d1c5469a05d_95cfc2b7_1280" src="https://github.com/user-attachments/assets/7f5977e6-d37a-45ad-aa60-d8763e359511" />
+
+
+$\text{\color{#e642f5} aubree/soda/melanie/apricat or squirm}$\
+$\text{\color{#e642f5} 22 september russian}$\
+$\text{\color{#e642f5} demiaroace abrosexual non-binary they/xe}$\
+$\text{\color{#e642f5} i love my partner hehe }$
+
+$\text{\color{#e642f5} c+h friendly}$\
+$\text{\color{#e642f5} offtab most of the time}$\
+$\text{\color{#e642f5} dont be racist pls...}$
+
+<img width="100" height="100" alt="tumblr_858a4021b894069fdfc104ca3fdfc5be_eb27c830_400" src="https://github.com/user-attachments/assets/e79d8ec7-d4b1-4d77-9057-724ff711b68e" />
+
+
+
+<img width="736" height="245" alt="tumblr_83947bf321f58b24068a0c1a2fb5f85a_bfc03ebe_1280" src="https://github.com/user-attachments/assets/1e3d059d-025f-4ddf-a8ca-f48e372b359e" />
+
  <img width="2048" height="819" alt="tumblr_5d0722baacd410137074a8808c5c7359_394ec23b_2048" src="https://github.com/user-attachments/assets/4a8ceada-49ae-426d-9c11-7e70e50287b2" />
 
 <div align="center"> <img width="99" height="56" alt="tumblr_900ad3868659e4c381eb6146a9fb850a_2a9e7ac1_100" src="https://github.com/user-attachments/assets/9d50c650-0691-4318-9490-459ff37c745e" />
