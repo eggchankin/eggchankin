@@ -21,4 +21,4 @@ $\text{\color{#38a4e8} dont be racist pls...}$
 
 
 
-
+"у тебя не все дома что-ли?"
