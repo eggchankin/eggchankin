@@ -21,7 +21,4 @@ $\text{\color{#38a4e8} dont be racist pls...}$
 
 
 
-"Устрой дестрой, порядок — это отстой
-Круши, ломай, тряси башкою пустой
-Допей, разбей и новую открывай
-Давай-давай!"
+[god hates fags who take girly hormones](https://youtu.be/KDvhBDA0mXQ?si=ZGw4a0BBTpb6CZ5J)
