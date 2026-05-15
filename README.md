@@ -6,7 +6,7 @@
 $\text{\color{#ff87e1} aubree/soda/melanie/apricat or squirm}$\
 $\text{\color{#f551cc} 22 september russian}$\
 $\text{\color{#e642f5} demiaroace abrosexual non-binary they/xe}$\
-$\text{\color{#e642f5} i love my partner hehe }$
+$\text{\color{#e642f5} i love my partners hehe }$
 
 $\text{\color{#51d4f5} c+h friendly}$\
 $\text{\color{#38c5e8} offtab most of the time}$\
