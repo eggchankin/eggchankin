@@ -1,5 +1,4 @@
-<div align="center"> @zt4r-z on github is terrible person they told me to kill myself twice, harassed me, stalked and now saying what theyre the victim.
-  im saying this to spread awarness.
+<div align="center"> 
 <div align="center"> 
   
 <img width="200" height="200" alt="tumblr_f732eb5a9032557c159e8d1c5469a05d_95cfc2b7_1280" src="https://github.com/user-attachments/assets/b988c8d8-b32c-452a-91bd-69f8a5c5ecac" />
