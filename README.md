@@ -17,9 +17,6 @@ $\text{\color{#38a4e8} dont be racist pls...}$
 
 <img width="2048" height="1073" alt="image" src="https://github.com/user-attachments/assets/b283338f-8f08-46eb-93c4-a49a15429936" />
 
-dni: mvvnchkin on github like bro srsly i dont want hear ur rusophobic bullshit ever again.
-I CAN be mean if ure talking stereotipical shit abt my country/russians . DNI ppl like this. sorry if i can be too much rude, like rlly sorry.
-evan's friends int with caution.
 
 [my bf](https://github.com/sebastianlikesapples)
 
