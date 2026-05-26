@@ -18,6 +18,7 @@ $\text{\color{#38a4e8} dont be racist pls...}$
 <img width="2048" height="1073" alt="image" src="https://github.com/user-attachments/assets/b283338f-8f08-46eb-93c4-a49a15429936" />
 
 dni: mvvnchkin on github like bro srsly i dont want hear ur rusophobic bullshit ever again.
+
 [my bf](https://github.com/sebastianlikesapples)
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/68437ade-46f7-40de-a855-8e41de2a023d" />
