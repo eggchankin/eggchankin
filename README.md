@@ -1,6 +1,7 @@
 <div align="center">
-do not harass anyone who know or knew callie, i just want to spread awarness about what callie did. not harassment.
-Sanctus group dni, funny how only now after doc abt callie you making every word i say a big deal.
+https://docs.google.com/document/d/14y_cRGyx03-FZSVjaOjqeFbEE287QUH4I_nqiUdoVSk/edit?tab=t.0
+  do not harass anyone who know or knew callie, i just want to spread awarness about what callie did. not harassment.
+Sanctus group dni.
 
 <div align="center"> 
 <div align="center"> 
