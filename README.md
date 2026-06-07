@@ -3,6 +3,7 @@ https://docs.google.com/document/d/14y_cRGyx03-FZSVjaOjqeFbEE287QUH4I_nqiUdoVSk/
   do not harass anyone who know or knew callie, i just want to spread awarness about what callie did. not harassment.
 Sanctus group dni.
 <div align="center"><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/c2df0960-e856-4702-8f7f-d1b83e5287da" />
+  
 my art btw and interact with really extreme caution unless were friends/close bcs these fucking situation with evan/robin made me so damn unstable, thanks.
 
 <div align="center"> 
