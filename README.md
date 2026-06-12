@@ -6,6 +6,11 @@ Sanctus group dni.
   
 my art btw and interact with really extreme caution unless were friends/close bcs these fucking situations with evan/robin made me so damn unstable, thanks.
 
+<div align="center"><img width="1621" height="2048" alt="image" src="https://github.com/user-attachments/assets/bdb5d822-011f-4863-8212-518fc2d22a48" />
+
+
+<div align="center"> artist: @imppular on X
+
 <div align="center"> 
 <div align="center"> 
   
