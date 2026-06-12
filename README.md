@@ -29,4 +29,4 @@ $\text{\color{#38a4e8} dont be racist pls...}$
 
 
 
-[god hates fags who take girly hormones](https://youtu.be/KDvhBDA0mXQ?si=ZGw4a0BBTpb6CZ5J)
+[you and me r meant to be! >_<](https://youtu.be/TBrR-xL7lks?si=l3w0Zf9RqZLRbwf2)
