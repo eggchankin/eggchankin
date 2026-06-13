@@ -37,10 +37,3 @@ $\text{\color{#38a4e8} dont be racist pls...}$
 
 
 
-[my bf](https://github.com/sebastianlikesapples)
-
-<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/68437ade-46f7-40de-a855-8e41de2a023d" />
-
-
-
-[you and me r meant to be! >_<](https://youtu.be/TBrR-xL7lks?si=l3w0Zf9RqZLRbwf2)
