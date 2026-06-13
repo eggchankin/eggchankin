@@ -22,7 +22,7 @@ $\text{\color{#e642f5} i love my partner hehe }$
 
 $\text{\color{#51d4f5} c+h friendly}$\
 $\text{\color{#38c5e8} offtab most of the time}$\
-$\text{\color{#38a4e8} dont be racist pls...}$
+$\text{\color{#38a4e8} dont talk about zt4r-z!}$
 
 <img width="2048" height="1073" alt="image" src="https://github.com/user-attachments/assets/b283338f-8f08-46eb-93c4-a49a15429936" />
 
