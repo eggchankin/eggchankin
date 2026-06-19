@@ -35,5 +35,8 @@ $\text{\color{#38a4e8} dont talk about zt4r-z!}$
 
 [If you ever hear me breathing, then that breathing is a joke](https://youtu.be/BmmMfZR8C80?si=jhZhIOFdLu05419H)
 
+<img width="150" height="20" alt="tumblr_0df3d61e928dfeef01d43aa9dac5aad2_659c467e_250" src="https://github.com/user-attachments/assets/34b6837e-17cd-40d6-b9ac-a9d2760ac9de" />
+
+
 
 
