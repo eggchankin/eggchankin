@@ -2,14 +2,7 @@
 https://docs.google.com/document/d/14y_cRGyx03-FZSVjaOjqeFbEE287QUH4I_nqiUdoVSk/edit?tab=t.0
   do not harass anyone who know or knew callie, i just want to spread awarness about what callie did. not harassment.
 Sanctus group dni.
-<div align="center"><img width="250" height="120" alt="image" src="https://github.com/user-attachments/assets/7ba90243-deb7-415b-bf44-81dce4b38563" />
 
-
-
-<div align="center"><img width="1621" height="2048" alt="image" src="https://github.com/user-attachments/assets/bdb5d822-011f-4863-8212-518fc2d22a48" />
-
-
-<div align="center"> artist: @imppular on X
 <div align="center"> 
 <div align="center"> 
   
