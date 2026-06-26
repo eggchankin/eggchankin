@@ -24,7 +24,8 @@ $\text{\color{#8bc0d6} sign ata please}$
 
 
 
-<img width="400" height="200" alt="image" src="https://github.com/user-attachments/assets/4405dcc6-7284-472a-9a5b-92119e0f0e43" />
+<img width="600" height="800" alt="image" src="https://github.com/user-attachments/assets/c405836b-ec80-476e-af3e-b4036c34df0b" />
+
 
 
 
