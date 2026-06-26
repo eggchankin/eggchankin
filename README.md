@@ -9,14 +9,14 @@
 
 
 
-$\text{\color{#b9e9ed} aubree/soda/melanie/apricat}$\
-$\text{\color{#97c2d1} 22 september russian}$\
-$\text{\color{#7b9db8} demiaroace abrosexual genderfluid }$\
-$\text{\color{#6993b3} i love my partner }$
+$\text{\color{#656b75} aubree/soda/melanie/apricat}$\
+$\text{\color{#656b75} 22 september russian}$\
+$\text{\color{#656b75} demiaroace abrosexual genderfluid }$\
+$\text{\color{#656b75} i love my partner }$
 
-$\text{\color{#608abd} c+h friendly}$\
-$\text{\color{#759ac7} offtab most of the time}$\
-$\text{\color{#8bc0d6} sign ata please}$
+$\text{\color{#656b75} c+h friendly}$\
+$\text{\color{#656b75} offtab most of the time}$\
+$\text{\color{#656b75} sign ata please}$
 
 
 
