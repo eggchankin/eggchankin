@@ -22,7 +22,8 @@ $\text{\color{#656b75} sign ata please}$
 
 [my bf](https://github.com/spokeizhere)
 
-<img width="200" height="200" alt="13855819_77352" src="https://github.com/user-attachments/assets/dbfa0f1e-219b-4f62-9f1c-fa687b799bf5" />
+<img width="764" height="390" alt="image" src="https://github.com/user-attachments/assets/6ecd0e57-ee21-4923-a0f8-98f5946f6ce4" />
+
 
 ---
 
