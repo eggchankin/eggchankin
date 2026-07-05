@@ -20,7 +20,7 @@ $\text{\color{#656b75} sign ata please}$
 
 <div align="center"> <img width="150" height="20" alt="tumblr_389e57307375672c59ceb5ee36a12865_454baadc_250" src="https://github.com/user-attachments/assets/c7967623-334f-4e50-ae0c-d9e10e0e1eb7" />
 
-[my bf](https://github.com/spokeizhere)
+[my partner](https://github.com/spokeizhere)
 
 <img width="764" height="390" alt="image" src="https://github.com/user-attachments/assets/6ecd0e57-ee21-4923-a0f8-98f5946f6ce4" />
 
