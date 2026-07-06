@@ -14,11 +14,10 @@ $\text{\color{#656b75} c+h friendly}$\
 $\text{\color{#656b75} offtab most of the time so w2i}$\
 $\text{\color{#656b75} sign ata please}$
 
-<div align="right">
- 
-<div align="center"> <img width="500" height="65" alt="tumblr_012de9b8253545424fb591fa148d9001_49641805_500" src="https://github.com/user-attachments/assets/788a139c-4281-49f2-b0d6-a1cdf4f05e64" />
 
-<div align="center"> <img width="150" height="20" alt="tumblr_389e57307375672c59ceb5ee36a12865_454baadc_250" src="https://github.com/user-attachments/assets/c7967623-334f-4e50-ae0c-d9e10e0e1eb7" />
+ 
+<img width="700" height="210" alt="tumblr_8e1d028a88995c940862a5c944caed3a_76348fb8_540" src="https://github.com/user-attachments/assets/3404cab4-fcea-4dba-9cad-8ca859bf1f19" />
+<img width="430" height="50" alt="tumblr_9b76f88f65570d7b127c2c2deecb1dc0_65ee1600_1280" src="https://github.com/user-attachments/assets/789e1180-7125-4c3c-8fcc-ba3d75998390" />
 
 [my partner](https://github.com/spokeizhere)
 
