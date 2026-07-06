@@ -34,9 +34,13 @@ $\text{\color{#656b75} sign ata please}$
 
 <img width="664" height="290" alt="image" src="https://github.com/user-attachments/assets/6ecd0e57-ee21-4923-a0f8-98f5946f6ce4" />
 
+<details>
+<summary>$${\Huge\color{b6b7ad}\textbf{🍀}}$$</summary>
+
+$\text{\color{c4c594} i love them so much!}$
 <div align="center"><img width="130" height="100" alt="image" src="https://github.com/user-attachments/assets/976b2507-8364-4bd2-86b5-76cd9e8d3d37" />
 
-
+</details>
 
 ---
 
