@@ -11,7 +11,7 @@ $\text{\color{#656b75} demiaroace abrosexual genderfluid }$\
 $\text{\color{#656b75} i love my partner }$
 
 $\text{\color{#656b75} c+h friendly}$\
-$\text{\color{#656b75} offtab most of the time}$\
+$\text{\color{#656b75} offtab most of the time so w2i}$\
 $\text{\color{#656b75} sign ata please}$
 
 <div align="right">
