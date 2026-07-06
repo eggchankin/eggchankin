@@ -1,6 +1,8 @@
 <div align="center">
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Jersey+10&size=30&duration=4000&pause=100&color=46474f&center=true&vCenter=true&width=435&lines=soda+or+pony+cosplay+im+sitting+as;this+git+is+mostly+for+pony+town" alt="Typing SVG" /></a>
 </div>
+<div align="center">
+<img width="155" height="155" alt="image" src="https://github.com/user-attachments/assets/fbf3b81c-9641-4ca5-882d-64b3a4290486" />
 
 ---
 
