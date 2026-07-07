@@ -48,6 +48,7 @@ $\text{\color{c4c594} i love them so much!}$
 
 <div align="center">
 https://docs.google.com/document/d/14y_cRGyx03-FZSVjaOjqeFbEE287QUH4I_nqiUdoVSk/edit?tab=t.0
+i'm making it public because callie did it first. I don't want people harass anyone related to callie and callie by themselves. I do not support harassing. If you have questions ask me it in discord (straxesoda) or pony town. I'm not trying to make me seem like a victim. I'm leaving it here until the lies about me and my boyfriend will be deleted from callies github page. 
 
 
 
