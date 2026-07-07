@@ -48,7 +48,8 @@ $\text{\color{c4c594} i love them so much!}$
 
 <div align="center">
 https://docs.google.com/document/d/14y_cRGyx03-FZSVjaOjqeFbEE287QUH4I_nqiUdoVSk/edit?tab=t.0
-i'm making it public because callie did it first. I don't want people harass anyone related to callie and callie by themselves. I do not support harassing. If you have questions ask me it in discord (straxesoda) or pony town. I'm not trying to make me seem like a victim. I'm leaving it here until the lies about me and my boyfriend will be deleted from callies github page. Sorry if i ever offended Callie, made jokes or anything. I'm genuinely sorry and don't want to mock Callie and Callies mental health state and never wanted it.
+
+i'm making it public because callie did it first. I don't want people harass anyone related to callie and callie by themselves. I do not support harassing. If you have questions ask me it in discord (straxesoda) or pony town. I'm not trying to make me seem like a victim. I'm leaving it here until the lies about me and my boyfriend will be deleted from callies github page. Sorry if i ever offended Callie, made jokes or anything. I'm genuinely sorry and don't want to mock Callie and Callies mental health state and never wanted it. I wish callie therapy, friends and all the best things. I'd like to keep this situation away from my partner and friends, it's not theirs. I can take responsibility for my flaws and things i did, i'd say sorry personally about anything i did or do wrong. I'm trying my best to be a good person and keep on changing. I love you all, bye!
 
 
 
