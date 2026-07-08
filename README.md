@@ -14,7 +14,7 @@ $\text{\color{#656b75} i love my partner }$
 
 $\text{\color{#656b75} c+h friendly}$\
 $\text{\color{#656b75} offtab most of the time so w2i}$\
-$\text{\color{#656b75} ask me in pony town, not atabook}$
+$\text{\color{#656b75} discord: straxesoda}$
 
 </div>
  
