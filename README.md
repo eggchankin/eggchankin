@@ -1,8 +1,11 @@
 <div align="center">
+  <img width="2048" height="78" alt="image" src="https://github.com/user-attachments/assets/f83d7ba0-b07e-4a5d-81ff-5de910cb902e" />
+
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Jersey+10&size=30&duration=4000&pause=100&color=46474f&center=true&vCenter=true&width=435&lines=soda+or+pony+cosplay+im+sitting+as;this+git+is+mostly+for+pony+town" alt="Typing SVG" /></a>
 </div>
 <div align="center">
-<img width="155" height="155" alt="image" src="https://github.com/user-attachments/assets/fbf3b81c-9641-4ca5-882d-64b3a4290486" />
+<img width="155" height="180" alt="image" src="https://github.com/user-attachments/assets/b2dc7c5d-90e7-4793-9958-095b786fe6d2" />
+
 
 ---
 
@@ -19,14 +22,14 @@ $\text{\color{#656b75} discord: straxesoda}$
 </div>
  
 <div align="center">
-<img width="700" height="210" alt="tumblr_8e1d028a88995c940862a5c944caed3a_76348fb8_540" src="https://github.com/user-attachments/assets/3404cab4-fcea-4dba-9cad-8ca859bf1f19" />
-
+<img width="800" height="304" alt="tumblr_0f95b285422f97a6b39d01b866f392f2_866f88fb_540" src="https://github.com/user-attachments/assets/1a132c5f-b8c3-4210-859e-cddec2789b1d" />
 </div>
 
+
 <div align="center">
-<img width="430" height="50" alt="tumblr_9b76f88f65570d7b127c2c2deecb1dc0_65ee1600_1280" src="https://github.com/user-attachments/assets/789e1180-7125-4c3c-8fcc-ba3d75998390" />
+<img width="2048" height="18" alt="image" src="https://github.com/user-attachments/assets/f066a758-b7db-4f3c-883a-529a592dc10a" />
+
   
----
 
 <div align="center">
 
@@ -34,13 +37,14 @@ $\text{\color{#656b75} discord: straxesoda}$
 
 </div>
 
-<img width="664" height="290" alt="image" src="https://github.com/user-attachments/assets/6ecd0e57-ee21-4923-a0f8-98f5946f6ce4" />
+<img width="700" height="555" alt="bhjnkl;" src="https://github.com/user-attachments/assets/c70f7889-e2aa-47e4-a59c-c2240acbaefa" />
 
 <details>
-<summary>$${\Huge\color{b6b7ad}\textbf{🍀}}$$</summary>
+<summary>$${\Huge\color{b6b7ad}\textbf{🐰}}$$</summary>
 
-$\text{\color{c4c594} i love them so much!}$
-<div align="center"><img width="130" height="100" alt="image" src="https://github.com/user-attachments/assets/976b2507-8364-4bd2-86b5-76cd9e8d3d37" />
+$\text{\color{c4c594} Not in the slightest, dearie.}$
+
+<img width="130" height="100" alt="tumblr_b2a135bff92518933d4fd30e0faab930_20752828_640" src="https://github.com/user-attachments/assets/d57e762b-4304-445b-83ad-222620d06af6" />
 
 </details>
 
