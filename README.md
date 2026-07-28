@@ -53,10 +53,19 @@ $\text{\color{c4c594} Not in the slightest, dearie.}$
 <div align="center">
 https://docs.google.com/document/d/14y_cRGyx03-FZSVjaOjqeFbEE287QUH4I_nqiUdoVSk/edit?tab=t.0
 
+<details>
+<summary>$${\Huge\color{b6b7ad}\textbf{click}}$$</summary>
+  
 i'm making it public because callie did it first. I don't want people harass anyone related to callie and callie by themselves. I do not support harassing. If you have questions ask me it in discord (straxesoda) or pony town. I'm not trying to make me seem like a victim. I'm leaving it here until the lies about me and my boyfriend will be deleted from callies github page. Sorry if i ever offended Callie, made jokes or anything. I'm genuinely sorry and don't want to mock Callie and Callies mental health state and never wanted it. I wish callie therapy, friends and all the best things. I'd like to keep this situation away from my partner and friends, it's not theirs. I can take responsibility for my flaws and things i did, i'd say sorry personally about anything i did or do wrong. I'm trying my best to be a good person and keep on changing. I love you all, bye!
 
+</details>
 
 <img width="400" height="400" alt="tumblr_306b00790349d883270a6ad84c87bf05_cadc93e7_1280" src="https://github.com/user-attachments/assets/cdbd88dc-a6bf-455c-80b6-ab6dd89a2200" />
+
+credits of arts/gifs: 
+https://www.tumblr.com/strangler-fish 
+https://www.tumblr.com/barryorg 
+https://www.tumblr.com/pie-witch
 
 
 
