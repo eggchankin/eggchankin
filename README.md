@@ -1,10 +1,10 @@
 <div align="center">
-  <img width="2048" height="78" alt="image" src="https://github.com/user-attachments/assets/f83d7ba0-b07e-4a5d-81ff-5de910cb902e" />
+  <img width="2048" alt="image" src="https://github.com/user-attachments/assets/f83d7ba0-b07e-4a5d-81ff-5de910cb902e" />
 
   <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Jersey+10&size=30&duration=4000&pause=100&color=46474f&center=true&vCenter=true&width=435&lines=soda+or+pony+cosplay+im+sitting+as;this+git+is+mostly+for+pony+town" alt="Typing SVG" /></a>
 </div>
 <div align="center">
-<img width="155" height="180" alt="image" src="https://github.com/user-attachments/assets/b2dc7c5d-90e7-4793-9958-095b786fe6d2" />
+<img width="155" alt="image" src="https://github.com/user-attachments/assets/b2dc7c5d-90e7-4793-9958-095b786fe6d2" />
 
 
 ---
@@ -60,7 +60,7 @@ i'm making it public because callie did it first. I don't want people harass any
 
 </details>
 
-<img width="400" height="400" alt="tumblr_306b00790349d883270a6ad84c87bf05_cadc93e7_1280" src="https://github.com/user-attachments/assets/cdbd88dc-a6bf-455c-80b6-ab6dd89a2200" />
+<img width="400" alt="tumblr_306b00790349d883270a6ad84c87bf05_cadc93e7_1280" src="https://github.com/user-attachments/assets/cdbd88dc-a6bf-455c-80b6-ab6dd89a2200" />
 
 credits of arts/gifs: 
 https://www.tumblr.com/strangler-fish 
