@@ -60,10 +60,6 @@ i'm making it public because callie did it first. I don't want people harass any
 
 </details>
 
-my nash design with without some clothing layers and a hat
-
-<img width="779" height="876" alt="image" src="https://github.com/user-attachments/assets/f55ecd0f-7e03-4a4b-aff2-94e7bc127d90" />
-
 
 credits of arts/gifs: 
 https://www.tumblr.com/strangler-fish 
